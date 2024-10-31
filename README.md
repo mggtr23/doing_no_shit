@@ -1,2 +1,6 @@
-# doing_no_shit
-Some ideas
+# DOING NO SHIT
+
+Some ideas by Miguel G.G.T.R.
+
+
+
